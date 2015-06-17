@@ -1,37 +1,43 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2015/05/31 更新）
+（2015/06/18 更新）
 
-####固定短网址1：https://git.io/free99
-
-####固定短网址2：https://x.co/free99
+####本页短网址：https://git.io/free99
 
 ***
 
-#  1.&nbsp;&nbsp;<a href="https://d2vfinceh4mqf8.cloudfront.net" target="_blank">一键翻墙</a>
+# <a href="https://dwvob1mylz161.cloudfront.net/freetz.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw01" target="_blank">动态网1</a>
+
+# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
 
 ***
 
-#  2.&nbsp;&nbsp;<a href="https://d2vfinceh4mqf8.cloudfront.net/zhen99.php" target="_blank">解密资讯</a>
+####永久短网址：https://git.io/free99
+
+####翻墙网入口：https://x.co/free99
+
+####动态网入口：https://x.co/dtw99
 
 ***
 
-#  3.&nbsp;&nbsp;<a href="https://d2vfinceh4mqf8.cloudfront.net/zs.php/url/d3pgxtks1xukvo.cloudfront.net/8" target="_blank">我要三退</a>
+### 电脑版翻墙软件：1. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=fg754p.zip" target="_blank">自由门</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=u1405.zip" target="_blank">无界</a>
+
+### 手机安卓版翻墙软件：1. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=fgma32.apk" target="_blank">自由门安卓版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=um3.1.apk" target="_blank">无界一点通</a>
 
 ***
 
-### 电脑版翻墙软件：1. <a href="https://d2vfinceh4mqf8.cloudfront.net/fga01.php?fid=fg754p.zip" target="_blank">自由门7.54版(5月22日最新发布)</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://d2vfinceh4mqf8.cloudfront.net/fga01.php?fid=u1405.zip" target="_blank">无界</a>
-
-### 手机安卓版翻墙软件：1. <a href="https://d2vfinceh4mqf8.cloudfront.net/fga01.php?fid=fgma32.apk" target="_blank">自由门安卓版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://d2vfinceh4mqf8.cloudfront.net/fga01.php?fid=um3.1.apk" target="_blank">无界一点通</a>
-
-***
-
-####固定短网址1：https://git.io/free99
-####固定二维码1：
-![翻墙1](https://d2vfinceh4mqf8.cloudfront.net/pic/yjfq0.png)
+####永久短网址：https://git.io/free99
+####永久二维码：
+![翻墙1](https://dwvob1mylz161.cloudfront.net/pic/yjfq0.png)
 
 ***
 
-####固定短网址2：https://x.co/free99
-####固定二维码2:
-![翻墙2](https://d2vfinceh4mqf8.cloudfront.net/pic/yjfq1.png)
+####翻墙网入口：https://x.co/free99
+####翻墙二维码:
+![翻墙2](https://dwvob1mylz161.cloudfront.net/pic/yjfq1.png)
+
+***
+
+####动态网入口：https://x.co/dtw99
+####二维码:
+![动态网](https://dwvob1mylz161.cloudfront.net/pic/dtw1.png)
