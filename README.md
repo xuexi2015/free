@@ -6,9 +6,9 @@
 
 ***
 
-# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d6.bg76.eu.org/831" target="_blank">动态网1</a>
+# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://gr4.ebb55.com/831" target="_blank">动态网1</a>
 
-# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
+# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1.cunzhen.info/831" target="_blank">动态网2</a>
 
 ***
 
@@ -20,9 +20,9 @@
 
 ***
 
-### 电脑版翻墙软件：1. <a href="https://dysnhgglc68sg.cloudfront.net/fga01.php?fid=fg754p.zip" target="_blank">自由门</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://dysnhgglc68sg.cloudfront.net/fga01.php?fid=u1501.zip" target="_blank">无界浏览</a>
+### 电脑版翻墙软件：1. <a href="https://git.io/fgp" target="_blank">自由门</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://git.io/HNvvvQ" target="_blank">无界浏览</a>
 
-### 手机安卓版翻墙软件：1. <a href="https://dysnhgglc68sg.cloudfront.net/fga01.php?fid=fgma32.apk" target="_blank">自由门安卓版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://dysnhgglc68sg.cloudfront.net/fga01.php?fid=um3.2.apk" target="_blank">无界一点通</a>
+### 手机安卓版翻墙软件：1. <a href="https://git.io/fgma" target="_blank">自由门安卓版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://git.io/2S1IBQ" target="_blank">无界一点通</a>
 
 ***
 
